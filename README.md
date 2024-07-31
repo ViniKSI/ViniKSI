@@ -9,3 +9,8 @@ Meu nome é Vinicius Kenji Sekiya Izumi
   
 ![](
 https://media1.tenor.com/m/pYMJhXpEhAIAAAAd/fighting-blue-ranger.gif)
+
+
+
+![](
+https://media.tenor.com/OuOe1tEN6-4AAAAM/pokemon-pokemon-journeys.gif)
